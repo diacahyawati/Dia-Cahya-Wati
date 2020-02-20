@@ -1,0 +1,2 @@
+# Dia-Cahya-Wati
+I was graduated from the Faculty of Mathematics and Natural Sciences, Gadjah Mada University 2019. Mastering very basic computers (Ms Office, data processing, and internet) and statistical software (R, Latex, ArcGis, SPPS, and Stata). From my experience the success of a social event of the Palembang Class Inspiration Class II and the Mathematical Postgraduate Association of Mathematics and Natural Sciences UGM as a form of being able to work with the team, integrity and high professionalism.
